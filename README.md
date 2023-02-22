@@ -1,1 +1,0 @@
-# gyula-z.github.io
